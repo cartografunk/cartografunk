@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cartografunk
-- 👀 I’m interested in SOCIETAL COLLAPSE
+- 👀 I’m interested in CRYPTOCURRENCY
 - 🌱 I’m currently learning AIR BENDING
 - 💞️ I’m looking to collaborate on GIS PROJECTS
 - 📫 How to reach me www.linkedin.com/in/CARTOGRAFUNK
